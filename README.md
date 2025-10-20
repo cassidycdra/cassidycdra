@@ -1,4 +1,4 @@
-# Halo! 👋 Saya Raffi
+# Halo! Am Cassidy
 
 💻 **Software Engineer**  
 🎮 Suka bikin game naratif dan eksplor hal baru di dunia keamanan siber.  
